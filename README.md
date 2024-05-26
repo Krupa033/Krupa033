@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Krupa25562@gmail.com...
 - 😄 Pronouns: ...She,Her
-- ⚡ Fun fact: ...A lil bit perctionist, seeking perfection in everything
+- ⚡ Fun fact: ...A lil bit perfectionist, seeking perfection in everything
 
 <!---
 Krupa033/Krupa033 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
